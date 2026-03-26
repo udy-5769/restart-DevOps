@@ -1,1 +1,1 @@
-# restarting carrer with DevOps & Cloud 
+# restarting career with DevOps & Cloud 
